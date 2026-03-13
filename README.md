@@ -17,5 +17,4 @@ Interview with former Wales and British & Irish Lions centre Dafydd James for th
 
 The piece reflects on James’s professional rugby career, his experiences at the highest level of the game and the continuing appeal of rugby sevens events in bringing together players, supporters and the wider rugby community.
 
-![Dafydd James interview – page 1](dafs.png)
 
