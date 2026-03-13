@@ -9,3 +9,6 @@ The publication accompanied the annual rugby sevens festival held in Cardiff and
 Interview with former Wales international rugby player Gareth Thomas for the Cardiff 7s Festival programme.
 
 The conversation explores Thomas’s career in professional rugby, the culture of the game and the role of rugby sevens events in promoting the sport and supporting grassroots participation.
+![Gareth Thomas interview – page 1](alfie.png)
+
+
