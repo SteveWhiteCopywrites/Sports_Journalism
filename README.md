@@ -7,7 +7,7 @@ I served as co-editor and contributor to the official Cardiff 7s Festival progra
 The publication accompanied the annual rugby sevens festival held in Cardiff and featured event coverage, player profiles and tournament commentary.
 
 ## Interview: Gareth Thomas
-Interview with former Wales international rugby player Gareth Thomas for the Cardiff 7s Festival programme.
+Interview with former Wales and British & Irish rugby player legend Gareth Thomas for the Cardiff 7s Festival programme.
 
 The conversation explores Thomas’s career in professional rugby, the culture of the 15s game, the role of rugby sevens, and grassroots participation in both codes.
 
