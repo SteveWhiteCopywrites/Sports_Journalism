@@ -42,6 +42,18 @@ Further blog content written for ACT.Community includes:
 
 [ACT viewpoint: What do athletes want in a new career?](https://www.linkedin.com/pulse/act-viewpoint-what-do-athletes-want-new-career-andy-moore/?trackingId=AY2ztmx4SS6scOgs9YB3Bg%3D%3D)
 
+[Hiring for diversity is crucial, but hiring diverse talent that is high performing is a game changer](https://www.linkedin.com/pulse/hiring-diversity-crucial-diverse-talent-high-performing-steve-moore/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D)
+
+[Swapping Sport for the C-Suite](https://www.linkedin.com/pulse/swapping-sport-c-suite-steve-moore/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D)
+
+[Why hiring an athlete is a game-changer for business](https://www.linkedin.com/pulse/why-hiring-athlete-game-changer-business-steve-moore-1e/?trackingId=6%2FPJn890TnOfOZFpsQ848g%3D%3D)
+
+[The Benefits of Hiring Former Athletes for Your Business](https://www.linkedin.com/pulse/benefits-hiring-former-athletes-your-business-richard-evans/?trackingId=wXZC2ZtkcM8HQ9pZHYePIg%3D%3D)
+
+[Five reasons why companies hire former athletes](https://www.linkedin.com/pulse/five-reasons-why-companies-hire-former-athletes-richard-evans/?trackingId=aePw5iKSWsU21UFmpyAGWw%3D%3D)
+
+[Athletic perspective: Coping without feedback](https://www.linkedin.com/pulse/athletic-perspective-coping-without-feedback-odette-hornby/?trackingId=TQ7NI7TghQ33n2i7MUhNiw%3D%3D)
+
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
 
