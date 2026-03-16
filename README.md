@@ -26,6 +26,22 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 
 ![ACT blog article example](RE2.png)
 
+### Additional Blog Articles
+
+Further blog content written for ACT.Community includes:
+
+[Career transition tips from athletes who have made the jump](https://www.linkedin.com/pulse/career-transition-tips-from-athletes-who-have-made-jump-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D)
+
+[What does career transition mean to us?](https://www.linkedin.com/pulse/what-does-career-transition-mean-us-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D)
+
+[Athletic performance is the constant that enterprise needs](https://www.linkedin.com/pulse/athletic-performance-constant-enterprise-needs-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D)
+
+[Could career coaching make athletes stronger before and after retirement?](https://www.linkedin.com/pulse/could-career-coaching-make-athletes-stronger-before-after-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D)
+
+[Why are Internships Great for Transitioning Athletes](https://www.linkedin.com/pulse/why-internships-great-transitioning-athletes-andy-moore/?trackingId=mFjuWI8pQLOjx8nW1Zy0bA%3D%3D)
+
+[ACT viewpoint: What do athletes want in a new career?](https://www.linkedin.com/pulse/act-viewpoint-what-do-athletes-want-new-career-andy-moore/?trackingId=AY2ztmx4SS6scOgs9YB3Bg%3D%3D)
+
 ## Cardiff 7s Festival Programme
 I served as co-editor and contributor to the official Cardiff 7s Festival programme, producing editorial content and interviews profiling players and personalities involved in the tournament.
 
