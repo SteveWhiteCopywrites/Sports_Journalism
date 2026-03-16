@@ -26,7 +26,7 @@ Examples of sports journalism including ghostwriting for elite athlete career pa
 
 ![ACT blog article example](RE2.png)
 
-Further blog content written for ACT.Community:
+Further blog content written for ACT.Community include:
 
 [Career transition tips from athletes who have made the jump](https://www.linkedin.com/pulse/career-transition-tips-from-athletes-who-have-made-jump-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D)
 
