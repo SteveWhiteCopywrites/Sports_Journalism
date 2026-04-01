@@ -8,8 +8,9 @@ I produced around 35 blogs and ghostwritten thought-leadership articles for foun
 
 I wrote social media copy to support delivery of blogs, as well as further ACT deliverables, including copy for job vacancies, athlete opportunities, announcements, and success stories. Publishing of these items was handled by [Ouma](https://www.ouma.co.uk/).
 
-### Blog: What can we learn from athletes' career transitions?
-[Click here](https://www.linkedin.com/pulse/what-can-we-learn-from-athletes-career-transitions-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D) to see the blog on LinkedIn.
+### Blog: What can we learn from athletes' career transitions?  
+
+Read the blog on [LinkedIn]((https://www.linkedin.com/pulse/what-can-we-learn-from-athletes-career-transitions-andy-moore/?trackingId=3e5%2F5OzKRS6mRB5%2BMOm3Rw%3D%3D)
 
 <img src="images/AM1.png" width="600">
 
