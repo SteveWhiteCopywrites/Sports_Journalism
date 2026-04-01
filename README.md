@@ -6,7 +6,7 @@ Examples of sports copywriting including ghostwriting for elite athlete career p
 [ACT.Community](https://act.community/), formerly Athlete Career Transition, supports professional athletes as they transition from elite sport into new careers. Following weekly consultation and collaboration with ACT heads and [Ouma](https://www.ouma.co.uk/) creative marketing team, 
 I produced around 35 blogs and ghostwritten thought-leadership articles for senior ACT team members. Content published on LinkedIn and the ACT website in partnership with [Ouma](https://www.ouma.co.uk/).
 
-I wrote social media copy to support delivery of blogs, as well as further ACT deliverables, including copy for job vacancies, athlete opportunities, announcements, and success stories. Publishing of these items was handled by [Ouma](https://www.ouma.co.uk/).
+I wrote social media copy to support delivery of blogs, as well as further ACT deliverables, including copy for job vacancies, athlete opportunities, announcements, and success stories. Publishing by [Ouma](https://www.ouma.co.uk/).
 
 ### Blog: What can we learn from athletes' career transitions?  
 
